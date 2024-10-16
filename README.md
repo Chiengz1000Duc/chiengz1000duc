@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 im streammer cor moiws noi co gi moi nguoi tham gia cung nhe\
 
 <!--
 **Chiengz1000Duc/chiengz1000duc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
